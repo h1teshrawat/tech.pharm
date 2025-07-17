@@ -1,0 +1,1 @@
+At TechPharm, we’re blending healthcare with innovation. Our mission is to make access to medicine and medical support easier and smarter through AI-driven solutions. Whether it's guiding patients, managing prescriptions, or connecting with local pharmacies, we’re here to simplify healthcare for everyone, anytime, anywhere.
